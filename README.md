@@ -1,2 +1,2 @@
-# srinivasnishantviswanadha.github.io
+# nishaaaaaant.github.io
 This is my personal website
